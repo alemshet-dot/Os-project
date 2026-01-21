@@ -1,0 +1,1 @@
+opreating system and brands 
